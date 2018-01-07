@@ -9,6 +9,7 @@ Comme se fanno a ssèntere
 'sti pàssere nn' ammore!
 
 
+-
 
 
 E, a llengua loro, diceno
@@ -20,6 +21,7 @@ zumpanno e secutànnose
 dinto a na lenza 'e Sole.
 
 
+-
 
 
 Cip - cì... Cip - cì... Se ntrecciano,
@@ -31,6 +33,7 @@ ca, mmiezo 'e ceppe d'èvera,
 ll'ammore fa cchiù ddoce.
 
 
+-
 
 
 Ma, nun appena sentono
@@ -39,9 +42,10 @@ na porta ca s'arape,
 
 'sti passarielle aìzano
 
-- tutte mapranza - 'e ccape...
+tutte mapranza - 'e ccape...
 
 
+-
 
 
 Guardano arruorno... Vedono
@@ -53,6 +57,7 @@ po'... ntela... e se ne fuieno,
 rimpetto, ncopp' 'e ccase.
 
 
+-
 
 
 E 'mponta 'o ciglio 'e ll'àsteco
@@ -64,6 +69,7 @@ e, a ccapofila, 'e màscule
 cu 'a cannacchella nera.
 
 
+-
 
 
 Chiù ttarde = 'e ddiece, ll'unnice -
@@ -75,6 +81,7 @@ quanno cchiù 'o Sole coce,
 sott' a 'stu pède 'e noce...
 
 
+-
 
 
 Chi cene e va... Chi pìzzeca
@@ -86,6 +93,7 @@ Chi, spaso dint' 'a pòvere,
 nun cerca e nun fatica...
 
 
+-
 
 
 E o' Sole abbafa ll'albere:
@@ -97,6 +105,7 @@ E se spatrèano 'e pàssere
 p' 'e site cchiù 'e muntagna.
 
 
+-
 
 
 Ma, wuanno è ll'ora tènnera
@@ -108,6 +117,7 @@ ah, ch'armunia! che musica!
 ch'orchestra, mmiezo 'e fronne!
 
 
+-
 
 
 Po' dint' 'a macchia 'e ll'èllera
