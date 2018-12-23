@@ -72,7 +72,7 @@ cu 'a cannacchella nera.
 -
 
 
-Chiù ttarde = 'e ddiece, ll'unnice -
+Chiù ttarde - 'e ddiece, ll'unnice -
 
 quanno cchiù 'o Sole coce,
 
